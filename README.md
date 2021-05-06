@@ -1,1 +1,1 @@
-body mods by brie
+Body Mods by Brie
